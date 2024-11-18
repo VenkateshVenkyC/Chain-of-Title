@@ -1,6 +1,4 @@
-## Ensuring that the buyer receives a property free of disputes or hidden claims. Reviewing and confirming the chain of title
-
-### **Chain of Title**  
+## **Chain of Title**  
 
 ---
 
